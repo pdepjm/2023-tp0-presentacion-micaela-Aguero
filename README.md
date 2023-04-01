@@ -3,7 +3,7 @@ Soy Micaela Agüero. Pueden decirme Mica, pero prefiero Mi o Miqui <3
 
 ## Sobre mi
 - Soy guia scout desde 2015.
-- Fan de Harry Potter.
+- Fan de Harry Potter (Slytherin).
 - Practico artes marciales hace 1 año.
 - Amo estudiar ingles (aunque no disfruto los writings).
 - Tengo un gato que se llama Napoleon y es mi vida.
