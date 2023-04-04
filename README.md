@@ -2,7 +2,7 @@
 Soy Micaela Agüero. Pueden decirme Mica, pero prefiero Mi o Miqui <3
 
 ## Sobre mi
-- Soy guia scout desde 2015.
+- Soy guia scout desde 2015, me gusta enseñar construcciones/nudos.
 - Fan de Harry Potter (Slytherin).
 - Practico artes marciales hace 1 año (Bujutsu).
 - Amo estudiar ingles (aunque no disfruto los writings).
